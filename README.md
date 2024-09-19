@@ -1,0 +1,1 @@
+# 2.ab.darbs1.uzdevums
