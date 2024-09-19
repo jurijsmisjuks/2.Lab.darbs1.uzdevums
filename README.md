@@ -1,1 +1,1 @@
-# 2.ab.darbs1.uzdevums
+# 2.Lab.darbs1.uzdevums
